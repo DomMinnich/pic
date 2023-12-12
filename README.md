@@ -5,7 +5,8 @@ random stuff I need online links for
 
 ![saints](https://github.com/DomMinnich/pic/assets/113619219/83092f01-f9b6-4628-a4d1-97e15f3878c5)
 
-![cross](https://github.com/DomMinnich/pic/assets/113619219/00f19c4e-8087-42ac-93fc-2c05a7e8f1f8)
+![wp5058937-jesus-minimalist-wallpapers](https://github.com/DomMinnich/pic/assets/113619219/6c7aa235-a219-4fd2-8268-d3b9024af3dd)
+
 
 https://github.com/DomMinnich/pic/assets/113619219/02e2344e-e687-4111-bbb5-a97b24ec11d1
 
